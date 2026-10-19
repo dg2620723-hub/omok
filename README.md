@@ -1,2 +1,0 @@
-# omok
-omok mandulgi
